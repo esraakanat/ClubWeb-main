@@ -5,4 +5,4 @@
 ![Screenshot_20230913_035049](https://github.com/almgdshi123/ClubWeb/assets/85642734/d24ac515-3a71-4d20-bb40-278ac7d7a2c4)
 
  قناة 
-https://www.youtube.com/watch?v=gpqoZQ8GNK8&list=PLyEas7uDNyf0134Z_9oHrs_sFWMcB9XDz&ab_channel=ZAINKEEPSCODE
+
